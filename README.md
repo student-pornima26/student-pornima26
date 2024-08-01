@@ -7,6 +7,7 @@
 - 📫 How to reach me ..https://www.linkedin.com/in/pornima-sakharkar-3b9a42256?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app.🔗
 - 😄 Pronouns: ...Pornima 
 - ⚡ Fun fact: Always ready to explore.
+- Author- Pornima Sakharkar
 
 <!---
 student-pornima26/student-pornima26 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
